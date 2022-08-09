@@ -20,6 +20,6 @@
 
 [The Complete Writing Course: Develop True Writing Mastery](https://www.udemy.com/course/the-complete-writing-course-develop-true-writing-mastery/)
 
-[Network Ethical Hacking for beginners](Kali 2020 - Hands-on](https://www.udemy.com/course/network-ethical-hacking/?ranMID=39197&ranEAID=*7W41uFlkSs&ranSiteID=.7W41uFlkSs-p0z6s67fwA82Rf.DrQMbDQ&utm_source=aff-campaign&LSNPUBID=*7W41uFlkSs&utm_medium=udemyads&couponCode=726B464708E41F305D86))
+[Network Ethical Hacking for beginners (Kali 2020 - Hands-on](https://www.udemy.com/course/network-ethical-hacking/?ranMID=39197&ranEAID=*7W41uFlkSs&ranSiteID=.7W41uFlkSs-p0z6s67fwA82Rf.DrQMbDQ&utm_source=aff-campaign&LSNPUBID=*7W41uFlkSs&utm_medium=udemyads&couponCode=726B464708E41F305D86))
 
 [Learn freelancing and avoid scams from absolute zero in 2021](https://www.udemy.com/course/learn-freelancing-and-avoid-scams-from-absolute-zero-in-2021/)
